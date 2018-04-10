@@ -10,3 +10,8 @@ ZCZC W03 selesai dicoba
 ZCZC W04 selesai dicoba
 
 ZCZC W05 selesai 
+
+ZCZC W06 sudah selesai 
+
+ZCZC W07 
+
