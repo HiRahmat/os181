@@ -13,5 +13,9 @@ ZCZC W05 selesai
 
 ZCZC W06 sudah selesai 
 
-ZCZC W07 
+ZCZC W07 slesai
+
+ZCZC W08
+
+
 
