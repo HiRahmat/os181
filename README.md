@@ -19,6 +19,6 @@ ZCZC W08 selesai
 
 ZCZC W09 selesai
 
-ZCZC W10 selesai
+ZCZC W10 
 
 
