@@ -15,7 +15,10 @@ ZCZC W06 sudah selesai
 
 ZCZC W07 slesai
 
-ZCZC W08
+ZCZC W08 selesai
 
+ZCZC W09 selesai
+
+ZCZC W10 selesai
 
 
